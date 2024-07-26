@@ -1,4 +1,4 @@
-<h1>Bakırköy Günlük Kiralık Ev</h1>h1
+<h1>Bakırköy Günlük Kiralık Ev</h1>
 
 Bakırköy’de Konaklama: Çeşitlilik ve Konfor
 
